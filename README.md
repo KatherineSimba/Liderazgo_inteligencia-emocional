@@ -4,6 +4,14 @@ Resumen del curso de Liderazgo con inteligencia emocional (Semana 1)
 *Para tener un equipo de trabajo necesitamos que todas los integrantes sean capaces de colaborar en dicho ambiente para eso
 se necesita de la inteligencia emocional*
 
+Es importante que el líder además tome conciencia del contagio emocional, que se produce siempre que las personas interactúan entre ellas. Para que el líder fomente un buen rapport o compenetración es interesante que tenga en cuenta los tres ingredientes básicos que lo facilitan:
+
+La atención absoluta cuando trata con las persona, es decir, estar completamente pendiente de las personas con las que se relaciona, intentando en la mayor medida posible dejar de lado las interrupciones.
+
+La sincronicidad no verbal: los movimientos y lenguaje corporal tienden a acompasarse lo que prueba una buena “sintonía” y comunicación más fluida.
+
+La positividad, en esos momentos de química personal, de conexión, es cuando salen mejor las cosas.
+
 ## ¿Qué es inteligencia emocional?
 
 Es la capacidad de una persona para identificar y controlar sus emociones adecuadamente. La inteligencia emocional ha sido 
